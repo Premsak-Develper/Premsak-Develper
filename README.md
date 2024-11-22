@@ -24,7 +24,8 @@ I'm interested in working on projects that involve:
 ### 📫 Connect with Me
 Feel free to reach out via:
 - Email: [premsak1987@icloud.com](premsak1987@icloud.com)
-- LinkedIn: [[Your LinkedIn Profile](https://www.linkedin.com/@Premsak)](https://www.linkedin.com/@Premsak)
+- Email:[premsak1987@้hotmail.com](premsak1987@hotmail.com)
+- LinkedIn:/https://www.linkedin.com/@Premsak)](https://www.linkss.com/@Premsak)
 
 ---
 
